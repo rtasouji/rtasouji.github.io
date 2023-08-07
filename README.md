@@ -1,1 +1,0 @@
-# rtasouji.github.io
